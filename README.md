@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @umesh-saini
+- 👀 I’m interested in software
+- 🌱 I’m currently learning somting new😄
+- 🔖 I'm React Next js + Django devloper with some othere tech knowledge 
+- 📫 How to reach me:- message me on linkdin 🤙
+- 😄 Pronouns: he 👦
+- ⚡ Fun fact: i am devloper🙂
