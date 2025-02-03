@@ -76,7 +76,7 @@ I'm always open to collaborating on interesting projects or discussing new oppor
 
 ## Fun Fact ⚡
 
-When I'm not coding, I enjoy [your hobby, e.g., playing guitar, hiking, or reading sci-fi novels]. Life is all about balance! 😄
+When I'm not coding, I enjoy Wathing Anime spend time with friend and sometime go on longride. Life is all about balance! 😄
 
 ---
 
