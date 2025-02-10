@@ -2,7 +2,7 @@
 
 ## About Me 🚀
 
-Hello! I'm a passionate software developer with **2.5 years of experience**, including a **6-month internship** and **1 year of full-time work** at **[Lanet Info Tech](https://lanetteam.com/)**. I love building scalable, user-friendly applications and solving complex problems through code. I'm always eager to learn new technologies and collaborate on exciting projects!
+Hello! I'm a passionate software developer with **2.5 years of experience**, including a **6-month internship** and **2 year of full-time work** at **[Lanet Info Tech](https://lanetteam.com/)**. I love building scalable, user-friendly applications and solving complex problems through code. I'm always eager to learn new technologies and collaborate on exciting projects!
 
 ---
 
