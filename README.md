@@ -81,3 +81,4 @@ When I'm not coding, I enjoy Wathing Anime spend time with friend and sometime g
 ---
 
 Thanks for visiting my profile! Have a great day! ✨
+![Visitor Count](https://profile-counter.glitch.me/umesh-saini/count.svg)
